@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rahaankit2001@gmail.com**
 
-- ⚡ Fun fact **I am an ambivert whom everybody thinks a extrovert **
+- ⚡ Fun fact **I am an ambivert whom everybody thinks an extrovert**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
